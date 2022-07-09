@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Myworld2521
-- 👀 I’m interested in investment 
-- 🌱 I’m currently learning contractors 
+- 👀 I’m interested in Real Estate  
+- 🌱 I’m currently learning investment 
 - 💞️ I’m looking to collaborate on crypto currency 
 - 📫 How to reach me ...
 
